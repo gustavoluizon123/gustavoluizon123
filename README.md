@@ -10,7 +10,7 @@
 - 🎓 Graduação em **Análise e Desenvolvimento de Sistemas** pela Cruzeiro do Sul Virutal
 - 🎓 Técnico em **Segurança Cibernética** pelo SENAC  
 - 📊 Iniciante em **Análise de Dados**  
-- 🎸 Aprendendo guitarra nas horas vagas (fã de Metallica & Guns N’ Roses 🤘)  
+- 🎸 Aprendendo guitarra nas horas vagas (fã de Metallica 🤘)  
 - 🎮 Gamer nas horas livres  
 
 ---
